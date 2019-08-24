@@ -1,2 +1,2 @@
-# GBUE
-International Research Center for Green Buildings and the Urban Environment (GBUE)
+
+老师同学们，绿色建筑与城市环境国际研究中心网站雏形有了。各位积极提意见哦。就在实验室微信群聊吧。
